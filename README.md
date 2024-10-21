@@ -25,6 +25,10 @@
 
 + E-book URL: https://blogs.ubc.ca/edcp508/files/2016/02/TheLittlePrince.pdf
 
+4. Holes (by Louis Sachar)
+
++ E-book URL: https://www.hayatschool.com/kuwait/articles/Holes_by_Louis_Sachar1.pdf
+
 
 ======================================
             REFERENCES
