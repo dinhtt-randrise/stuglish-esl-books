@@ -21,5 +21,17 @@
 
 + E-book URL: https://www.booksfree.org/the-house-on-mango-street-pdf-free-download/
 
+3. The Little Prince (by Antoine de Saint-Exupery)
+
++ E-book URL: https://blogs.ubc.ca/edcp508/files/2016/02/TheLittlePrince.pdf
+
+
+======================================
+            REFERENCES
+  ----------------------------------
+
++ ESL Book List: https://www.luc.edu/esl/resourcesforcurrentstudents/recommendedreadinglist/
+
+
 
 ```
